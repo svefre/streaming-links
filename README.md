@@ -19,3 +19,7 @@
 
 * <https://www.wcoforever.com/>
 * <https://kimcartoon.to/>
+
+## Sports
+
+* <https://www.90min.de/posts/2536760-kein-sky-oder-dazn-abo-die-besten-live-stream-seiten>
